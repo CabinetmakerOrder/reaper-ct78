@@ -1,4 +1,4 @@
-# 
+# Melhor DaVinci Resolve para PC addons é o melhor DaVinci Resolve para PC addons com graduação de cor e estabilização de vídeo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
